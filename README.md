@@ -1,2 +1,2 @@
-# prashanth_legndary
-prashanth_legndary
+# prashanth_legendary
+prashanth_legendary
